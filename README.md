@@ -1,1 +1,0 @@
-# programador-br-full-stack
